@@ -21,7 +21,7 @@ I'm an enthusiastic Product Management/Engineer Intern at FOX, currently diving 
 - **Brallium:** A sustainable fashion project with a focus on biomaterials and inclusivity
 
 ### 📫 Connect with Me
-- **LinkedIn:** [Your LinkedIn Profile](https://www.linkedin.com/in/bella-yuyu)
+- **LinkedIn:** [Bella's LinkedIn Profile](https://www.linkedin.com/in/bella-yuyu)
 
 ---
 
